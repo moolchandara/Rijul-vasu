@@ -1,2 +1,0 @@
-# Rijul-vasu
-Rijul vasu
